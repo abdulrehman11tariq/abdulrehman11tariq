@@ -12,7 +12,7 @@ You can reach me through email or LinkedIn.
 
 ## A Bit About Me:
 
-- 🐈I have two cats
+- 🐈Have some cats
 - ☕I don't drink coffee or tea
 - ⚽**Hobbies :** runnning, building things, gym, football
 
